@@ -1,0 +1,1 @@
+# tamyzai.kz
